@@ -1,2 +1,2 @@
-# yefikrmead.com-
+# yeanatapro.com-
 Technology 
